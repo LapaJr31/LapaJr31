@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LapaJr31
+- 👀 I’m interested in programming and hardware
+- 🌱 I’m currently learning python and java
+- 📫 How to reach me telegram - @weaboo3110 , instagram - @lapuasss
